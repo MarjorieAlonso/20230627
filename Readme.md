@@ -1,1 +1,1 @@
-Lider Marjorie Alonso - Karol Neiza
+Lider Marjorie Alonso - Karol Neiza - Emmanuel Piedrahita
